@@ -1,1 +1,1 @@
-# README 
+# LG Aimers 6
